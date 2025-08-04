@@ -21,3 +21,5 @@ At the Flugsvamp 4.0 shop, you will find a wide selection of illegal products, p
 It is vital to acknowledge the significant risks associated with participating in such markets, encompassing both legal and security implications. Always prioritize your personal safety and take all necessary precautions to protect your identity and data when navigating these platforms, particularly when trying to confirm access to the *official* Flugsvamp 4.0.
 
 <a href="http://cfmzeua3g46ufmry3kc57zterrnoiy3qaxfz5bhuj3zcwi5r7e4argid.onion"><img src="/asset/operation.webp" alt="image" style="max-width: 100%;"></a>  <a href="http://cfmzeua3g46ufmry3kc57zterrnoiy3qaxfz5bhuj3zcwi5r7e4argid.onion"><img src="/asset/settings.webp" alt="image" style="max-width: 100%;"></a>
+
+Update:  08/04/2025
