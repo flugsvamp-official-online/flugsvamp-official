@@ -22,4 +22,6 @@ It is vital to acknowledge the significant risks associated with participating i
 
 <a href="http://cfmzeua3g46ufmry3kc57zterrnoiy3qaxfz5bhuj3zcwi5r7e4argid.onion"><img src="/asset/operation.webp" alt="image" style="max-width: 100%;"></a>  <a href="http://cfmzeua3g46ufmry3kc57zterrnoiy3qaxfz5bhuj3zcwi5r7e4argid.onion"><img src="/asset/settings.webp" alt="image" style="max-width: 100%;"></a>
 
-Update:  08/04/2025
+
+
+Update:  Wednesday 13 August 2025 link is live and functioning properly
