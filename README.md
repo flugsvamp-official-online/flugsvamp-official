@@ -26,4 +26,6 @@ It is vital to acknowledge the significant risks associated with participating i
 
 
 
-Update:  Tuesday 19 August 2025 Fixed unreachable link
+
+
+Update:  23 August Fixed broken link, now accessible and live
